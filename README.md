@@ -1,4 +1,0 @@
-# vara-spinoff
-
-# zwaaien
-https://nl.wikipedia.org/wiki/Zwaaien
